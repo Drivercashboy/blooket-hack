@@ -1,1 +1,1 @@
-# bloomer-coins-hack
+blooket coins hack
